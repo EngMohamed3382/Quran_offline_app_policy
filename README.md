@@ -1,0 +1,1 @@
+# Quran_offline_app_policy
